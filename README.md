@@ -1,0 +1,1 @@
+# te08993386744lepon-putar-yang-efektif
